@@ -8,7 +8,7 @@
 
 ⚡ Fun fact Sometimes I'm a night owl & sometimes an early bird!
 
-Lanugage & Tools :
+
 
 
 
